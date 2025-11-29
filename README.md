@@ -50,7 +50,7 @@ emotional depth to the narrative.
 
 For detailed insights into the movie's box office performance, check out
 [box office collection of dhadak 2
-movie](https://prostarfly.com/dhadak-2-movie-box-office-collection-day-wise-worldwide/){target="_blank"}
+movie](https://prostarfly.com/dhadak-2-movie-box-office-collection-day-wise-worldwide/)
 day-wise worldwide.
 
 ## Performances
